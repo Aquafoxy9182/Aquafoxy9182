@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Aqua
+- 🌱 I’m currently learning in hischool
+- 📫 How to reach me dont
